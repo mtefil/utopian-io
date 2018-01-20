@@ -1,2 +1,0 @@
-# utopian-io
-TWİTTER
